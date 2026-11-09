@@ -1,1 +1,0 @@
-# Dayly Learning
